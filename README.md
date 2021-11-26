@@ -3,4 +3,4 @@ I am Austin Jaguar\
 Hlyo Kyi Kyar\
 Mail: zj-liu18@mails.tsinghua.edu.cn\
       2001beijing@163.com\
-      austinbaba@gmail.com\
+      austinbaba@gmail.com
